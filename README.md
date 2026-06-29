@@ -12,8 +12,6 @@
 
 - 📫 How to reach me **srishtipriyassp@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1pX0x_eHmZ90CbotMFdHg_odttvqeOYgZ/view?usp=drivesdk](https://drive.google.com/file/d/1pX0x_eHmZ90CbotMFdHg_odttvqeOYgZ/view?usp=drivesdk)
-
 - ⚡ Fun fact **I'm chill person**
 
 <h3 align="left">Connect with me:</h3>
